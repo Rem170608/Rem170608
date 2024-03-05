@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me you dont
 - 😄 Pronouns: HE
-- ⚡ Fun fact: i have a bad sleep scedule 
+- ⚡ Fun fact: i have a bad sleep schedule 
 
 <!---
 Rem170608/Rem170608 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
